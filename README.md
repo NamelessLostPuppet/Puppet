@@ -1,5 +1,10 @@
 				 ༘ " Their hearts are delicate like glass... yours especially. You're worthy of my grace. " ˑ༄
 <p align="center">
+ ಄ <a href="https://pronouns.cc/@seiple">pronouns page</a> ˖
+  <a href="https://kaemple.atabook.org/">atabook</a> ಄
+</p>
+
+<p align="center">
   <img width="801" height="413" alt="image" src="https://github.com/user-attachments/assets/e6d72bc1-c60d-4657-b52b-5e51411fe209" />
 </p>
 
